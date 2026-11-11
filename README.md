@@ -1,1 +1,0 @@
-# -Eletro-Kurumin-Gest-o-de-Estoque
